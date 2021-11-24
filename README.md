@@ -1,0 +1,2 @@
+# Tak
+pal gume
